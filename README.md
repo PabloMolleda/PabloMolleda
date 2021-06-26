@@ -10,8 +10,8 @@
 
 - Reach me: 
     
-    📩 pmolledadelrio@gmail.com
-    📱 (+34) 600 079 523
-    ⌨️ https://www.linkedin.com/in/pablomolleda/
+    📩 pmolledadelrio@gmail.com 
+    📱 (+34) 600 079 523 
+    ⌨️ https://www.linkedin.com/in/pablomolleda/ 
    
    
