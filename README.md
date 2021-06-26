@@ -2,7 +2,7 @@
 
 - 👨🏻‍💻 Passionate Full Stack Developer
 
-- 📍 Spaniard based in Dublin 🇮🇪 with my cat Rebujito 😸
+- 📍 Spaniard based in Dublin 🇮🇪 
 
 - 💞️ Looking to collaborate on new projects
 
@@ -15,4 +15,3 @@
     ⌨️ https://www.linkedin.com/in/pablomolleda/
    
    
-https://media1.tenor.com/images/f46caceaa923268d9f1590d53a34b153/tenor.gif?itemid=17761219
