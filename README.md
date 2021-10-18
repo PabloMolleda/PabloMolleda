@@ -4,7 +4,7 @@
 
 - 📍 Spaniard based in Dublin 🇮🇪 
 
-- 💞️ Looking to collaborate on new projects
+- 💞️ Developer Support Engineer @ Salesforce
 
 - 💻 IronHack Web Development Bootcamp Graduate
 
