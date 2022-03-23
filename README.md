@@ -2,7 +2,7 @@
 
 - 👨🏻‍💻 Passionate Full Stack Developer
 
-- 📍 Spaniard based in Dublin 🇮🇪 
+- 📍 Madrid, Spain🇪 
 
 - 💞️ Real Estate & Construction Associate @ PwC
 
