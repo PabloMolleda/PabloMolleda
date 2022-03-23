@@ -4,7 +4,7 @@
 
 - 📍 Spaniard based in Dublin 🇮🇪 
 
-- 💞️ Developer Support Engineer @ Salesforce
+- 💞️ Real Estate & Construction Associate @ PwC
 
 - 💻 IronHack Web Development Bootcamp Graduate
 
